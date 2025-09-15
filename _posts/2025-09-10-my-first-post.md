@@ -21,4 +21,8 @@ Ready to get straight to a paycheck starting july 1st the endless-headache of a 
 First day i do my daily stop to my corner store deli. "Let me get a
 B-A-C-O-N-E-G-G-N-C-H-E-E-S-E ".
 along with the sandwhich i got some gum, cranberry juice and 2 bags of cheese itz.
-9:00am sharp we arrived at the daycare waiting to be placed into classrooms as assistants and helpers. I was placed with my long time Friend from kindergarten as assistants.... They have noo idea. After meeting the teacher we were placed with and the 2nd teacher who we became very connected to for the next few weeks we did alot of work like decorating and making boards, redecorating and cleaning the classroom, feeding and teaching children 
+9:00am sharp we arrived at the daycare waiting to be placed into classrooms as assistants and helpers. I was placed with my long time Friend from kindergarten as assistants.... They have noo idea. After meeting the teacher we were placed with and the 2nd teacher who we became very connected to for the next few weeks we did alot of work like decorating and making boards, redecorating and cleaning the classroom, feeding and teaching children and helping other staff with events for the kids.
+<br>
+Throughout the 6 weeks of SYEP i met new friends, made new connecting with my co-workers all while making money. After all the tables , chairs , plates of food that were carried up 3 flights of stairs, all the toys that we built for the kids, down to cleaning their cubbies were worth it because of the fun memories that were made!
+<br>
+<img src="/blog/images/happyguy.png" alt="picture of happy guy">
