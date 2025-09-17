@@ -39,3 +39,21 @@ Throughout the 6 weeks of SYEP i met new friends, made new connecting with my co
 "Be on time, Theres alot of work to be done"
 <br>
 <img src="/blog/images/cookeddog.webp" alt="picture of cooked dog meme">
+<br>
+6pm???? Monday- friday????, is this even a summer break anymore.
+<br>
+Genuinely questioning my sports decisions.
+<br>
+An hour passed after work and i was then on my merry way to practice to be on time ofcoure....
+<br>
+Another regret i have
+<br>
+I got to the track around 5:40 as well as my couple of my other teamates. Time flys, its now 6:30 ans guess whos <b>NOT</b> here.
+<br>
+Our Coach..
+<br>
+*Text message* "Be on time, Theres alot of work to be done"
+<br>
+Around 7pm Coach arrives and we get straight to warming up all while being yelled at. Mid-Way through the workout my teamate decides to ask if were gonna be running this summer...
+<br>
+<img src="/blog/images/IMG_4821.webp" alt="picture of cooked meme">
