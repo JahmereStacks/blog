@@ -57,3 +57,14 @@ Our Coach..
 Around 7pm Coach arrives and we get straight to warming up all while being yelled at. Mid-Way through the workout my teamate decides to ask if were gonna be running this summer...
 <br>
 <img src="/blog/images/IMG_4821.webp" alt="picture of cooked meme">
+<br>
+Thank GOODNESS the answer was no, well not until the end of the 6 week summer training.
+The workout consisted of our 30m-1h warmup, 4 sets of hanstring crawls to the 50 yard line on the football field, isometrics, backside mechanic training, pylometrics and to finish it off we got a core circuit and a cool down skip. Although it felt like hell the next 6 weeks of practice, the work will refelct when the season starts back up.
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<h2>Summer Fun Time</h2>
+Besides practice and working all summer, i actually had time to go out and have fun with family and friends. One of the things i did over the summer with family was going out to eat and the squid game experience in manhattan. We took picktures , Ate alot of food at bbq's and even lost terribly in the squid game experience, it was very fun though.
