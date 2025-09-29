@@ -78,3 +78,5 @@ Another thing i did over the summer is go to puerto rico. Very fun trip, i had a
 <h3>Bye summer, Hello Senior Year!</h3>
 As summer comes to an end everyday day closer to the first day of school/ senior year, in my head im thinking to myself i genuinely dont want to go back to school.
 But on the flip side im definitly ready to end and get out of highschool and start making big bucks $$. Only thing's im looking forward too during the school year is my birthday, graduation and possibly our senior trip (depending on where we decide to go).
+<br>
+<img src="/blog/images/grad-removebg-preview.png" alt="picture of a graduate" height = 500x>
