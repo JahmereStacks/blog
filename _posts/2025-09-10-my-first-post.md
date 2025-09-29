@@ -68,3 +68,13 @@ The workout consisted of our 30m-1h warmup, 4 sets of hanstring crawls to the 50
 <br>
 <h2>Summer Fun Time</h2>
 Besides practice and working all summer, i actually had time to go out and have fun with family and friends. One of the things i did over the summer with family was going out to eat and the squid game experience in manhattan. We took picktures , Ate alot of food at bbq's and even lost terribly in the squid game experience, it was very fun though.
+<br>
+<br>
+Another thing i did over the summer is go to puerto rico. Very fun trip, i had a blast even tho it was only for 2 days. I tried out new things and still didnt learn how to swim!. I went to the beach , jetsking (i cant even swim) and had fun with my cousins. After all those fun activites we went to our family memebers house and cooked and ate good food.
+
+<br>
+<br>
+<br>
+<h3>Bye summer, Hello Senior Year!</h3>
+As summer comes to an end everyday day closer to the first day of school/ senior year, in my head im thinking to myself i genuinely dont want to go back to school.
+But on the flip side im definitly ready to end and get out of highschool and start making big bucks $$. Only thing's im looking forward too during the school year is my birthday, graduation and possibly our senior trip (depending on where we decide to go).
